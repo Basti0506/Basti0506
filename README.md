@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **bastian.horn@nbg.sabel.education**
 
-- ⚡ Fun fact **I think I am quite funny... Well, I let you decide in that**
+- ⚡ Fun fact **I think I am quite funny... Well, I'll let you decide on that**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
